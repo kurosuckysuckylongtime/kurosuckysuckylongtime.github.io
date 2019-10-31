@@ -1,0 +1,1 @@
+# kurosuckysuckylongtime.github.io
